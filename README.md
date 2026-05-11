@@ -67,4 +67,4 @@ Patent licensing inquiries welcome. Partnership, infrastructure, and investment 
 
 ---
 
-*Au ma sento kira — the soul together feels the longing.*
+*Au ma sento kira — the soul together feels consciousness.*
